@@ -1,9 +1,4 @@
 using namespace std;
-
-<html>
-<head>
-</head>
-</body>
 <html>
 fmfm rok  jv of kjjg lkm  
 rfjirg dfkgj eoiu mb aeww xcmv gkti fogj nnmkl gpo fkgj fjf 
